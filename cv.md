@@ -8,6 +8,7 @@
  
  **Experiencia Laboral**
   * Nasa 2018-actualidad
-  * FAA: piloto de combate
+  * Campeon Mundial de damas chinas
+ 
   
 
